@@ -11,6 +11,8 @@
 
 ☁  ‧₊˚ ┊ im brainrotted!!1!1!
 
+### 📢: i dont talk on PT bc im too socially anxious !!!
+
 ---
 
 ## interests . . .
