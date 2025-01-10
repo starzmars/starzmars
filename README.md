@@ -9,16 +9,45 @@
 
 ⭐ ‧₊˚ ┊ 14 yrs old (jan 01)
 
+☁  ‧₊˚ ┊ im brainrotted!!1!1!
+
 ---
 
 ## interests . . .
 
-🌻🌈  ๋࣭ ⭑ dandy's world
+🎲  ๋࣭ ⭑ **GAMES:** dandy's world, mouthwashing
 
-💙💛  ๋࣭ ⭑ object shows
+🎨  ๋࣭ ⭑ **OSC:** bfdi (all series), cfmot, animatic battle, itft, ONE, etc
 
-🧡🖤  ๋࣭ ⭑ pucca
+🎬  ๋࣭ ⭑ **MEDIA:** tawog, south park, pucca, moral orel, teach the cat, true crime
 
-🎭  ๋࣭ ⭑ persona 3 & 5
+🎭  ๋࣭ ⭑ **ANIME:** blue lock, death note, persona 3 & 5, doukyuusei, given, bsd
 
-(and much more... check [here](https://ratmalware.carrd.co))
+---
+
+## likes . . .
+
+🐈 ⭑.ᐟ cats cats cats
+
+🖌 ⭑.ᐟ art & animating
+
+🎶 ⭑.ᐟ music from [these artists](https://marsmusic.straw.page)
+
+🍟 ⭑.ᐟ food of course
+
+🛏 ⭑.ᐟ bedrotting...
+
+---
+
+## dni . . .
+- if ur 17+ bc big kids scare me
+- ppl who r rude, toxic, etc
+- weirdos (zoos, homophobes, etc)
+- if ur highly sensitve
+- **dsmp fans.**
+- dry texters
+- idk bru js be chill
+
+---
+
+THATS ALL! idk how to work this website lolz
