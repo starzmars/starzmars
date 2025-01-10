@@ -1,16 +1,24 @@
-## Hi there 👋
+![yes](https://i.pinimg.com/474x/9d/0e/c8/9d0ec8c38434ddf5f53fdcbc6023f537.jpg)
+---
 
-<!--
-**starzmars/starzmars** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## about me . . .
 
-Here are some ideas to get you started:
+🌈 ‧₊˚ ┊ mars *!!*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌙 ‧₊˚ ┊ ***he/they***/any
+
+⭐ ‧₊˚ ┊ 14 yrs old (jan 01)
+
+---
+
+## interests . . .
+
+🌻🌈  ๋࣭ ⭑ dandy's world
+
+💙💛  ๋࣭ ⭑ object shows
+
+🧡🖤  ๋࣭ ⭑ pucca
+
+🎭  ๋࣭ ⭑ persona 3 & 5
+
+(and much more... check [here](https://ratmalware.carrd.co))
