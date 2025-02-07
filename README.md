@@ -23,7 +23,7 @@
 
 🎬  ๋࣭ ⭑ **MEDIA:** tawog, south park, pucca, moral orel, teach the cat, true crime
 
-🎭  ๋࣭ ⭑ **ANIME:** blue lock, death note, persona 3 & 5, doukyuusei, given, bsd
+🎭  ๋࣭ ⭑ **ANIME:** blue lock, death note, persona 3 & 5, doukyuusei, given, bsd, sk8 the infinity, danganronpa
 
 ---
 
